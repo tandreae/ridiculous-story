@@ -1,13 +1,15 @@
 # Chapter 3
 
-Deadpool's mask crinkled as if he were raising an eyebrow. "Okay, maybe not chimichanga joints exactly. It’s more like a bunch of important Gotham buildings. You know, classic Joker chaos. Point is, he’s going for a citywide bonanza of boom-booms, and I figured, why not help the ol' Bats out for once? I mean, you're basically Gotham's grumpy dad, right?"
+The intruder grinned beneath his mask, taking a big bite of the taco before tossing the rest over the edge. "The name's Deadpool. You know, Merc with a Mouth, anti-hero, fourth-wall breaker extraordinaire. I'm basically your counterpart—just funnier and more attractive."
 
-Batman said nothing, though his mind was racing. The Joker’s plans were always convoluted and dangerous, and if this strange mercenary had any useful information, he’d need it.
+Batman’s eyes narrowed. "You're trespassing."
 
-Deadpool waltzed over to the Bat-Signal, admiring it up close. "Man, this thing is awesome. I need a Deadpool Signal. Just imagine it: a giant taco in the sky, summoning me to save the day. Anyway, Bats, here’s the deal. I’ll give you the Joker’s location, and in return, you let me help you take him down. It'll be fun—a dynamic duo of dysfunctional anti-heroes!"
+Deadpool gave an exaggerated gasp, clutching his chest. "Ouch! That hurts, Bruce. Can I call you Bruce? I feel like we're on first-name terms by now. No? Fine, keep your secrets, Mr. Dark-and-Mysterious. But trespassing? Really? We're both in the same line of work here—justice, vengeance, witty banter."
 
-Batman’s voice was low and dangerous. "I work alone."
+Without warning, Batman threw a batarang, but Deadpool dodged with a well-timed cartwheel, landing nimbly in a crouch. "Whoa, easy there, cowboy. I'm not here to fight. Well, unless you want to, then it's cool. But seriously, I come in peace. You got a Joker problem, and I got intel."
 
-Deadpool spun on his heel, dramatically shaking his finger. "Tsk, tsk, tsk. Do you, though? I mean, what about Robin? Or Nightwing? Or Batgirl? You got a whole bat-family, and don’t think I don’t know about Alfred. That dude is the unsung hero of your operation."
+Batman hesitated for a moment. The Joker’s name was always enough to grab his attention. Still, he didn’t trust this man, this…Deadpool. "What do you know?"
 
-Batman stepped forward, looming over Deadpool. "Tell me where the Joker is. Now."
+Deadpool rolled his eyes. "Jeez, you could say ‘please’ once in a while. Anyway, your buddy the Joker—creepy guy, bad makeup, obsessed with you—he’s up to something big. I got wind of it from a reliable source, and no, it wasn’t a fortune cookie this time. He's planning to blow up all the chimichanga joints in Gotham."
+
+Batman blinked. "Chimichanga joints?"
