@@ -10,4 +10,3 @@ Batman’s voice was low and dangerous. "I work alone."
 
 Deadpool spun on his heel, dramatically shaking his finger. "Tsk, tsk, tsk. Do you, though? I mean, what about Robin? Or Nightwing? Or Batgirl? You got a whole bat-family, and don’t think I don’t know about Alfred. That dude is the unsung hero of your operation."
 
-Batman stepped forward, looming over Deadpool. "Tell me where the Joker is. Now."
